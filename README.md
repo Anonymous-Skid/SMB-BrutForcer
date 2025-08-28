@@ -1,2 +1,2 @@
-# MultiTool-FRENCH-
-Legendary MultiTool with 65+ Opts
+SMB-BrutForcer+PassList 
+This Is for educational purposes ONLY and I am NOT responsible for ANY Damages on your device....
